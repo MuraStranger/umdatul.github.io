@@ -1,1 +1,0 @@
-# umdatul.github.io
